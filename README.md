@@ -1,2 +1,2 @@
 # android_apps
-![](https://giphy.com/gifs/wqY6ZGklhwK0zwWQJD)
+![](https://media.giphy.com/media/wqY6ZGklhwK0zwWQJD/giphy.gif)
